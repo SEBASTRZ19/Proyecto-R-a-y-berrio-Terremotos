@@ -1,1 +1,1 @@
-# Proyecto-R-a-y-berrio-Terremotos
+# Proyecto-Rua-y-berrio-Terremotos
